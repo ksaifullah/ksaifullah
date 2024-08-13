@@ -25,7 +25,11 @@ On weekday, I get the kids wake up, make their breakfast and lunch, get them rea
 
 I usually start working a little before 9 AM and finish around 5 PM. I work from home 4 out of 5 days a week and go to office typically on Thursdays. I have got a dedicated room with ergonomic office setup at home.
 
-My typical days mostly have meetings with immediate teams and external different stakeholders. I also allocate some time for study and technical deep dive.
+My typical days mostly have meetings with immediate teams and external stakeholders. I also allocate some time for study and technical deep dive.
+
+In the evenings, I help kids with their homeworks, make our dinner ready, scroll through social media and sometimes focus on personal developments.
+
+My weekends are full-on with household chores and cooking, volunteering in a community school and sometimes kids activities.
 
 ## Communicate
 
@@ -49,4 +53,4 @@ I would appreciate if you give me raw feedbacks, without sugar coating. Please s
 
 ## Achieve
 
-I have been mentoring people at my workplace. Most of them achieved great career progression. My contribution in their journey is my achievement.
+I have been mentoring people at my workplace. Most of them achieved great career progression. My contribution in their career journey is my achievement.
